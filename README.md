@@ -1,0 +1,2 @@
+# premium-expansion-arbor-001-expansion-arbor-turning-slee
+Tired of fumbling through a drawer of mismatched sleeves and arbors, wasting precious turning time on trial-and-error setups? This Notion workshop template brings order to your expansion arbor system, so you can focus on the craft.  It eliminates the guesswork by centralizing all your arbor turning specs, sleeve grip dimensions, and project notes i
